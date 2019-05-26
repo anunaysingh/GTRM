@@ -1,1 +1,1 @@
-# GTRM learing GITHUM
+# GTRM learing GITHUb
